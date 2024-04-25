@@ -1,1 +1,1 @@
-![Powerbank T](https://github.com/Youba0/Alimentation-photvoltaique-portable-/assets/141171959/82822f5d-3469-4b5a-8063-cf1d110322de)
+[Youba BOUAZZOUNI portable photovoltaic power supply.pdf](https://github.com/Youba0/Alimentation-photvoltaique-portable-/files/15108132/Youba.BOUAZZOUNI.portable.photovoltaic.power.supply.pdf)![portable photovoltaic power supply](https://github.com/Youba0/Alimentation-photvoltaique-portable-/assets/141171959/594856a5-29ab-4600-be70-c46ee30a3763)
